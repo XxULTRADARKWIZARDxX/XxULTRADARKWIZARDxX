@@ -5,7 +5,7 @@
 - 📫 How to reach me 7451 elmbridge way apt 205 😇
 - 😄 Pronouns: ski/bidi 🪠
 - ⚡ Fun fact: 👅💦 I just bought a property in egypt
-
+- 🤷 Idk why im like this, but I lowkey love to goon to you send me a dm
 <!---
 XxULTRADARKWIZARDxX/XxULTRADARKWIZARDxX is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
