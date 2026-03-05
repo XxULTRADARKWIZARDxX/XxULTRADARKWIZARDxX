@@ -2,7 +2,7 @@
 - 👀 I’m interested in getting... freaky 👅
 - 🌱 I’m currently learning about you 🤤
 - 💞️ I’m looking to collaborate on devil's tango 😈
-- 📫 How to reach me 7451 elmbridge way apt 205 😇
+- 📫 How to reach me ask 😇
 - 😄 Pronouns: ski/bidi 🪠
 - ⚡ Fun fact: 👅💦 I just bought a property in egypt
 - 🤷 Idk why im like this, but I lowkey love to goon to you send me a dm
